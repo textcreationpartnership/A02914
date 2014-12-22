@@ -35,9 +35,13 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A short and plaine proofe by the word, and workes off God, that Gods decree is not the cause off any
+
+1. To the ladie Bovves, Grace, and vviſedome, from aboue.
+
+1. To all that waite for ſalvation by Ieſus Christ▪ Grace and peace from God.
+
 #####Body#####
-A short and plaine proofe by the word, and workes off God, that Gods decree is not the cause off any
+AMonge the rest of the fearefull works of the miſterie of iniquitie, this is not the leaſt (if not tIt is a cuſtome amongſt men to conclude that free wil muſt needs followe this vnderſtanding of vnive
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
